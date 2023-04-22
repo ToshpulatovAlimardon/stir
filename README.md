@@ -1,2 +1,2 @@
 # Stir
-xxl nice web-site 🤡
+nice web-site 🤡
